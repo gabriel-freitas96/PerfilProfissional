@@ -50,7 +50,7 @@ Criar uma versão online do currículo com:
 
 📧 E-mail: [gl547842@gmail.com]  
 📱 WhatsApp: (83) 98141-4556  
-📍 Localização: Sua Cidade – Estado  
+📍 Localização: Campina Grande – Paraíba  
 
 ---
 
